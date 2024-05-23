@@ -62,3 +62,4 @@
 </div>
 
 <img src="https://github.com/monica-ayala/monica-ayala/raw/main/dist/snake.svg" alt="Snake animation" />
+#hola mony, no puedo acceder a nada de raarr, sera que por aca que puedas compartir los accesos porfitas, estoy a tus ordenes. Un abrazo fuerte y gracias de antemano.
